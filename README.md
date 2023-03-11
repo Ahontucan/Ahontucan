@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ahontucan
-- 👀 I’m interested in ... Applied Mathematics & Science, Arts, Gaming
+- 👀 I’m interested in ... You
 - 🌱 I’m currently learning ... Design Technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Mo0n#3424 adrianhontucan1@gmail.com Ahontucan@yahoo.com
